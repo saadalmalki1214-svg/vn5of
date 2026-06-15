@@ -49,3 +49,9 @@ https://discord.com/channels/1390777445686313202/1497380614645743817/14973806146
 
 
 https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
+
+
+
+اكورد10
+
+https://discord.com/channels/1390777445686313202/1484037709541670974/1484037709541670974
