@@ -1,4 +1,11 @@
 # vn5of
+
+اكورد12
+
+https://www.mediafire.com/file/48gfowu3ziny17z/m7_Haccord12.zip/file
+
+
+
 ماب توكسك
 
 https://modsfire.com/x0pFzyU8nlU5vk9
