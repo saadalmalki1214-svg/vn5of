@@ -62,3 +62,36 @@ https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85e
 اكورد10
 
 https://discord.com/channels/1390777445686313202/1484037709541670974/1484037709541670974
+
+
+شاص 
+
+
+https://www.mediafire.com/file/xkuqd7x5u3dvrsx/Almutairi+Land+LC70.zip/file
+
+
+كي فور
+
+https://modsfire.com/d7s2xpazVK85vmb 
+
+
+كي فايف
+
+
+https://modsfire.com/7381g72X3uvoXdT
+
+
+كامري4
+
+https://modsfire.com/Agy84NWh6kWf9kS
+
+
+ماليبو
+
+
+https://sharemods.com/yleuw8u9psj7/ZOMVL_NoLimits_Chevrolet_Lumina_2008-2010.zip.html
+
+كىريلا 2020
+
+
+https://modsfire.com/24c784zK69Pr4kb 
