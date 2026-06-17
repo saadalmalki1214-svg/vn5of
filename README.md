@@ -1,10 +1,10 @@
 # vn5of
-اكورد12
+
+تورس26
 
 
-https://www.dropbox.com/scl/fi/1unhd17irforvpuj5mu1i/m7_Haccord12-1.zip?rlkey=s324fs2g21itoxs3o0nihpvxb&st=bgdaueqw&dl=1
 
-
+https://www.dropbox.com/scl/fi/ul61b0wx1wjk34q5t9swj/TRS_2_K_.zip?rlkey=kgug91ibblvne6asbsxhi4dnb&st=jch5icco&dl=1
 
 شاص
 
