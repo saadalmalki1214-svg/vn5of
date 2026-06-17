@@ -1,4 +1,10 @@
 # vn5of
+اكورد12
+
+
+https://www.dropbox.com/scl/fi/1unhd17irforvpuj5mu1i/m7_Haccord12-1.zip?rlkey=s324fs2g21itoxs3o0nihpvxb&st=bgdaueqw&dl=0
+
+
 
 شاص
 
