@@ -141,3 +141,9 @@ https://www.mediafire.com/file/qtqo0gwl8tsdjlo/BdRaN_cr24.dts.zip/file
 
 
 https://www.dropbox.com/scl/fi/d87qwjhyzobol1zwt7phc/Sonata_14.zip?rlkey=4sch2dayfeufthu14nr1jwi54&st=f4zxtnu9&dl=1
+
+سلفرادو خويلد
+
+
+
+https://www.dropbox.com/scl/fi/8yjt4wxjffo2a24h9jqmh/Silverado_2020_UAE4.zip?rlkey=737u1ocphnoosalhokpnm2hi4&st=0s58qwa9&dl=1
