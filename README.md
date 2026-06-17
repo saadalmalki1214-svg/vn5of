@@ -116,4 +116,4 @@ https://www.mediafire.com/file/qtqo0gwl8tsdjlo/BdRaN_cr24.dts.zip/file
 سوناتا
 
 
-https://www.dropbox.com/scl/fi/d87qwjhyzobol1zwt7phc/Sonata_14.zip?rlkey=4sch2dayfeufthu14nr1jwi54&st=f4zxtnu9&dl=0
+https://www.dropbox.com/scl/fi/d87qwjhyzobol1zwt7phc/Sonata_14.zip?rlkey=4sch2dayfeufthu14nr1jwi54&st=f4zxtnu9&dl=1
