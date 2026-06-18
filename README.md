@@ -134,3 +134,11 @@ https://www.dropbox.com/scl/fi/pnqh4ta1tn1729m9p5sob/Charger_SXT_2015.zip?rlkey=
 
 
 https://www.dropbox.com/scl/fi/rmzy0mh27cfkkynl2ut96/LX570_2017_KHwylD.zip?rlkey=ar2peiq127wqdzb9lp94tf27l&st=wj4lou0l&dl=1
+
+
+
+النترا19
+
+
+https://www.dropbox.com/scl/fi/hb0epaeaqe7vx9hniecpb/elantraad.zip?rlkey=w3p409cyjcubk9gbiwm9sl9pu&st=jp00mpgy&dl=1
+
