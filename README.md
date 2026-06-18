@@ -95,10 +95,17 @@ https://sharemods.com/yleuw8u9psj7/ZOMVL_NoLimits_Chevrolet_Lumina_2008-2010.zip
 https://modsfire.com/24c784zK69Pr4kb 
 
 
+
+
+
+
+
+
 شاص16
 
 
 https://www.mediafire.com/file/qtqo0gwl8tsdjlo/BdRaN_cr24.dts.zip/file
+
 
 
 
@@ -142,3 +149,9 @@ https://www.dropbox.com/scl/fi/rmzy0mh27cfkkynl2ut96/LX570_2017_KHwylD.zip?rlkey
 
 https://www.dropbox.com/scl/fi/hb0epaeaqe7vx9hniecpb/elantraad.zip?rlkey=w3p409cyjcubk9gbiwm9sl9pu&st=jp00mpgy&dl=1
 
+
+
+كامري خويلد
+
+
+https://www.dropbox.com/scl/fi/uxn5v0ouxcn6gv7tl9fq0/Camry_2025_KHwylD.zip?rlkey=ojbi4oquyq947cem2dqbgpay4&st=wepkw8di&dl=0
