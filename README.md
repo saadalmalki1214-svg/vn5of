@@ -169,3 +169,9 @@ https://www.dropbox.com/scl/fi/6v5qc2dncidw28sgw1ol2/M7_cruze12-1.zip?rlkey=czhg
 
 
 
+كدنزا
+
+https://www.dropbox.com/scl/fi/9h855lsnkvo4hsqeemjep/Kia-Cadenza-By-Ray-2.zip?rlkey=7w2ycl18567fpz0fh5tfs5ehw&st=euri9tc0&dl=1
+
+
+
