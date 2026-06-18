@@ -161,3 +161,11 @@ https://www.dropbox.com/scl/fi/virqwfdiuaowpvuyxy4bi/Patrol_2020_UAE4.zip?rlkey=
 
 https://www.dropbox.com/scl/fi/q92pvw3n0kqgfcnsea6xy/vehicles.zip?rlkey=7aahr6o5sssjb09j4nt4bp1o6&st=532g844v&dl=1
 
+
+
+كرىز
+
+https://www.dropbox.com/scl/fi/6v5qc2dncidw28sgw1ol2/M7_cruze12-1.zip?rlkey=czhg198vihfa4tlfsh259b210&st=yncettam&dl=1
+
+
+
