@@ -186,3 +186,10 @@ https://www.dropbox.com/scl/fi/u6l6yhshzzuzuw096z0iu/wLi_Camry2011.zip?rlkey=oz0
 
 
 https://www.dropbox.com/scl/fi/pnqh4ta1tn1729m9p5sob/Charger_SXT_2015.zip?rlkey=j6eazhxsp0dyf9phgsts02nvn&st=qaxdg3vv&dl=1
+
+
+لكزس خويلد
+
+
+
+https://www.dropbox.com/scl/fi/rmzy0mh27cfkkynl2ut96/LX570_2017_KHwylD.zip?rlkey=ar2peiq127wqdzb9lp94tf27l&st=wj4lou0l&dl=1
