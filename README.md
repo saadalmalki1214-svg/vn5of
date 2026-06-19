@@ -117,9 +117,7 @@ https://www.dropbox.com/scl/fi/6v5qc2dncidw28sgw1ol2/M7_cruze12-1.zip?rlkey=czhg
 
 
 
-كدنزا
 
-https://www.dropbox.com/scl/fi/9h855lsnkvo4hsqeemjep/Kia-Cadenza-By-Ray-2.zip?rlkey=7w2ycl18567fpz0fh5tfs5ehw&st=euri9tc0&dl=1
 
 
 كامري11
@@ -151,17 +149,9 @@ https://www.dropbox.com/scl/fi/hb0epaeaqe7vx9hniecpb/elantraad.zip?rlkey=w3p409c
 
 
 
-كامري خويلد
 
-
-https://www.dropbox.com/scl/fi/uxn5v0ouxcn6gv7tl9fq0/Camry_2025_KHwylD.zip?rlkey=ojbi4oquyq947cem2dqbgpay4&st=wepkw8di&dl=1
-
-
-
-تورس
+شاص2000
 
 
 
-https://www.dropbox.com/scl/fi/52r8uk1muohzhwp3fjpl7/TRS_2_K_.zip?rlkey=o7gvvleofh6i38qdxrluxpby4&st=ygsvedcz&dl=1
-
-
+https://www.dropbox.com/scl/fi/desgr2t1l8pqgh0dloela/vehicles-1.zip?rlkey=zoo91x2cbgnmsoxnzq5y3usr3&st=te2axqlb&dl=1
