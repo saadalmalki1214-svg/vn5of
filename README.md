@@ -170,3 +170,10 @@ https://www.dropbox.com/scl/fi/22wwksq3b8yexudkkx2ht/M7_soso12.zip?rlkey=n00nw4r
 اوبتما
 
 https://www.dropbox.com/scl/fi/zdo21bcj3vdn4lgdbpvmm/lost_Optima2015.zip?rlkey=axjz09pufhfrva662pbtockzk&st=dsrmvv78&dl=1
+
+
+
+لومينا
+
+
+https://www.dropbox.com/scl/fi/nd2ktx78x1xtzet54tzjf/ZOMVL_NoLimits_Chevrolet_Lumina_2008-2010.zip?rlkey=4otf52kd8nxnmoi7vsg2o5n10&st=25ymmvob&dl=1
