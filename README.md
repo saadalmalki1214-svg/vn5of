@@ -178,6 +178,9 @@ https://www.dropbox.com/scl/fi/n2nasaog16so5yypi7dh6/Cj_Coco_1_1.zip?rlkey=zvw9g
 
 
 
+
+
+
 باترول
 
 
@@ -190,3 +193,10 @@ https://modsfire.com/1QDXzFEArLs9A4G
 
 https://modsfire.com/1JtfY2ok22pTSre
 
+
+
+مود
+
+
+
+https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
