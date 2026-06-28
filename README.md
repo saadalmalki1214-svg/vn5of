@@ -223,3 +223,11 @@ https://www.mediafire.com/file/mpj1drr8kzqruyh/0Toxic_Street_v1_1.zip/file
 
 
 https://www.dropbox.com/scl/fi/099y0p8io1kzjfsg81s4i/Alve-Team-Mazda6-18-25.zip?rlkey=i0vma4yhkcnd7w5s3hczlho00&st=knnmj5fn&dl=1
+
+
+
+
+كامري25
+
+
+https://www.dropbox.com/scl/fi/s6cjy02flvv9l5tnfwx3m/camry25_by_Meto_and_iEviil.zip?rlkey=64r2vps55bruymtnnjfw966lq&st=ga2b7lw5&dl=1
