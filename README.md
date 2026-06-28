@@ -216,3 +216,10 @@ https://modsfire.com/CI212vdopuXZp9i
 
 https://www.mediafire.com/file/mpj1drr8kzqruyh/0Toxic_Street_v1_1.zip/file
 
+
+
+مازدا6
+
+
+
+https://www.dropbox.com/scl/fi/099y0p8io1kzjfsg81s4i/Alve-Team-Mazda6-18-25.zip?rlkey=i0vma4yhkcnd7w5s3hczlho00&st=knnmj5fn&dl=1
