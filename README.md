@@ -243,3 +243,10 @@ https://www.dropbox.com/scl/fi/s6cjy02flvv9l5tnfwx3m/camry25_by_Meto_and_iEviil.
 
 
 https://www.dropbox.com/scl/fi/6iab94a1dgkpc56s6ovs2/Hyundai_Elantra_21_23.zip?rlkey=7jrtku2xmee4xvlc5q9k9l4bl&st=8odk0vot&dl=1
+
+
+
+اكسنت
+
+
+https://modsfire.com/9KQ5J8nnqva8U1D
