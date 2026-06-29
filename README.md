@@ -250,3 +250,11 @@ https://www.dropbox.com/scl/fi/6iab94a1dgkpc56s6ovs2/Hyundai_Elantra_21_23.zip?r
 
 
 https://modsfire.com/9KQ5J8nnqva8U1D
+
+
+
+هايلوكس 
+
+
+
+https://www.dropbox.com/scl/fi/iqsrru94uo6gfavdipy64/taskhulix.zip?rlkey=9c4vb4e37pfu8tku0uy1ga86j&st=dqw8d9nm&dl=1
