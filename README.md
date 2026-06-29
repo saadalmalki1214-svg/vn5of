@@ -231,3 +231,15 @@ https://www.dropbox.com/scl/fi/099y0p8io1kzjfsg81s4i/Alve-Team-Mazda6-18-25.zip?
 
 
 https://www.dropbox.com/scl/fi/s6cjy02flvv9l5tnfwx3m/camry25_by_Meto_and_iEviil.zip?rlkey=64r2vps55bruymtnnjfw966lq&st=ga2b7lw5&dl=1
+
+
+
+
+
+النترا22
+
+
+
+
+
+https://www.dropbox.com/scl/fi/6iab94a1dgkpc56s6ovs2/Hyundai_Elantra_21_23.zip?rlkey=7jrtku2xmee4xvlc5q9k9l4bl&st=8odk0vot&dl=1
