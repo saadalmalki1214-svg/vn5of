@@ -334,3 +334,12 @@ https://www.dropbox.com/scl/fi/l7rs88qtoxj2z4tcdy353/Land_Cruiser_j70_2023_KHwyl
 
 
 https://www.dropbox.com/scl/fi/1owabql69dwxhke7jrc01/Avalon-2022-Ray.zip?rlkey=491sbtc0fdkmnpm8lup6gfob7&st=fv3hcdp8&dl=1
+
+
+
+
+اكسنت17
+
+
+
+https://modsfire.com/B298vDte8x8849E
