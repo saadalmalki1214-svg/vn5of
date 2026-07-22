@@ -326,3 +326,11 @@ https://www.dropbox.com/scl/fi/51mk0bjt0ot8o37u207v0/sonata-2014.zip?rlkey=y2038
 
 
 https://www.dropbox.com/scl/fi/l7rs88qtoxj2z4tcdy353/Land_Cruiser_j70_2023_KHwylD-20260722T164551Z-1-001.zip?rlkey=m5aoiq3pvjdoy05rgdet53iby&st=s02rhjlk&dl=1
+
+
+
+
+افلون
+
+
+https://www.dropbox.com/scl/fi/1owabql69dwxhke7jrc01/Avalon-2022-Ray.zip?rlkey=491sbtc0fdkmnpm8lup6gfob7&st=fv3hcdp8&dl=1
