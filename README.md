@@ -324,3 +324,11 @@ https://ts.buzzheavier.com/d/p2oqynsjtutq?v=rIezojZEjemcXnF_nv28xMW6JH8dh_7ozsm6
 
 
 https://modsfire.com/1SPmmRv1htRfkM2
+
+
+
+لاند 25
+
+
+
+https://www.dropbox.com/scl/fi/5krqdxocmqyiasa2m7x0v/Land_Cruiser_LC70_70y_KHwylD-20260724T022741Z-1-001.zip?rlkey=rlyzw87ljlryentar2mhpu58n&st=499vdl7z&dl=1
