@@ -346,3 +346,12 @@ https://www.dropbox.com/scl/fi/f2w05j2wp0brfruqjfahs/RB3_2024_KHwylD-20260724T02
 
 
 https://www.dropbox.com/scl/fi/cd5qkolhi78g0kxh07b82/Hyundai_Sonata_2024_KHwylD-20260724T021106Z-1-001.zip?rlkey=9w410720muy9y5zws52pr4n6k&st=x3hvcouz&dl=1
+
+
+
+
+شاص
+
+
+
+https://www.dropbox.com/scl/fi/5krqdxocmqyiasa2m7x0v/Land_Cruiser_LC70_70y_KHwylD-20260724T022741Z-1-001.zip?rlkey=rlyzw87ljlryentar2mhpu58n&st=v9nuuvo9&dl=1
