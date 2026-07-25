@@ -363,3 +363,11 @@ https://www.dropbox.com/scl/fi/5krqdxocmqyiasa2m7x0v/Land_Cruiser_LC70_70y_KHwyl
 
 
 https://www.dropbox.com/scl/fi/88o8lf4p9ayeac5wl4362/Altima_2009_KHwylD-20260724T022803Z-1-001.zip?rlkey=tsbg51q9a2vb80kyy2lzsui82&st=5zbflb4g&dl=1
+
+
+
+
+النترا2023
+
+
+https://www.dropbox.com/scl/fi/m9vl6lhezxxq0xnvde124/Elantra_2023_KHwylD-20260724T022750Z-1-001.zip?rlkey=186czxtxuc7irfruupv2hns4k&st=1dwedcko&dl=1
