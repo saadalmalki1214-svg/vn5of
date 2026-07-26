@@ -383,17 +383,7 @@ https://www.dropbox.com/scl/fi/hr4kfpbesjc0t4i1m647r/Camry_2021_KHwylD-20260724T
 
 
 
-كدنزا
+كامري m7
 
 
-
-https://www.dropbox.com/scl/fi/vj673t53dp99efkba563i/Cadnza_2017_KHwylD-20260724T022801Z-1-001.zip?rlkey=jg4t1ixunltwprn39tjckwvkn&st=rl77dfan&dl=1
-
-
-
-
-اكورد2017
-
-
-
-https://www.dropbox.com/scl/fi/4949bcvod21s1tcw7q2t2/accord_lost_17.zip?rlkey=6ad5ays9gnrmies7zc7b1g9sp&st=o5naojl0&dl=1
+https://www.dropbox.com/scl/fi/ng81w3o6205g7mqefayzx/Tshalee7_camry18_24.zip?rlkey=7n53yxfez7ilmz82d8b2ex6k4&st=lrc8nkxv&dl=1
