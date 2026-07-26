@@ -396,3 +396,12 @@ https://www.dropbox.com/scl/fi/ng81w3o6205g7mqefayzx/Tshalee7_camry18_24.zip?rlk
 
 
 https://www.dropbox.com/scl/fi/yzib9sxxij9alenhwsptb/M7_camry08_11.zip?rlkey=qfo32faoqcj2ugxmi2edhaanu&st=7ekn51z8&dl=1
+
+
+
+
+لكزس بدران
+
+
+
+https://www.dropbox.com/scl/fi/6a7xwfytzj3qoal26y2ju/BdRaN_Lx570.zip?rlkey=tpeyarhrd02f5j4i3wlh8tsy0&st=leh5yxdu&dl=1
