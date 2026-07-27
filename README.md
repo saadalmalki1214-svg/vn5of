@@ -422,3 +422,10 @@ https://www.dropbox.com/scl/fi/4of68aoisyifjenvmgi24/S3o_Elantra2024-saad-almalk
 
 
 https://www.dropbox.com/scl/fi/0oeeaedzmsjf21lhw4mci/Corolla_2024_KHwylD-20260724T022751Z-1-001.zip?rlkey=5cvjjse9ajk7nenvfrabdqgwr&st=ho197jzq&dl=1
+
+
+
+هايلوكس 2015
+
+
+https://www.dropbox.com/scl/fi/2wpnra3otobka97bhjrcz/Hilux_2015_KHwylD-20260724T022745Z-1-001.zip?rlkey=5ecg1m618n79586yg5edqye31&st=5usmmtxt&dl=1
