@@ -429,3 +429,10 @@ https://www.dropbox.com/scl/fi/0oeeaedzmsjf21lhw4mci/Corolla_2024_KHwylD-2026072
 
 
 https://www.dropbox.com/scl/fi/2wpnra3otobka97bhjrcz/Hilux_2015_KHwylD-20260724T022745Z-1-001.zip?rlkey=5ecg1m618n79586yg5edqye31&st=5usmmtxt&dl=1
+
+
+
+سفاري
+
+
+https://www.dropbox.com/scl/fi/hmtczlwr1r0a7r8329aap/Safari_2024_KHwylD-20260724T022737Z-1-001.zip?rlkey=vlhcxd1uq5v4yg872cvcxhwiz&st=2smaljxv&dl=1
