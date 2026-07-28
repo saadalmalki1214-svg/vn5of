@@ -444,3 +444,12 @@ https://www.dropbox.com/scl/fi/hmtczlwr1r0a7r8329aap/Safari_2024_KHwylD-20260724
 
 
 https://buzzheavier.com/d6sxsw1ybt8i
+
+
+
+
+
+اكورد17
+
+
+https://www.dropbox.com/scl/fi/ic44j3t8hgbkgq7ewj7kq/accord_lost_17-1.zip?rlkey=98ptvnsphh61v1bs1d5iymsje&st=vqqlrt5c&dl=1
